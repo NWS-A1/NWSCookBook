@@ -19,7 +19,7 @@ Cette tarte à la rhubarbe est comme une tarte de grand-mère : généreuse, sav
 ## [PREPARATION]
 
 1. Préchauffez le four à 180°c, étalez la pâte brisée dans le moule à tarte.
-2. Epluchez la rhubarbe de façon à ce qu'elle n'ait plus du tout de fils, lavez-là, égouttez-la puis coupez-la en petits tronçons. Disposez-la sur votre pâte à tarte.
+2. Epluchez la rhubarbe de façon à ce qu'elle n'ait plus du tout de fils, lavez-là, égouttez-la puis coupez-la en petits tronçons. 
 3. Battez les œufs, ajoutez le sucre en poudre, la farine tamisée et la crème fraîche.
 4. Versez le tout sur la garniture. Enfournez pendant 30 à 35 min.
 5. 5 min avant la fin de cuisson, sortez votre tarte du four et saupoudrez-la de sucre vanillé pour la caraméliser légèrement. 
