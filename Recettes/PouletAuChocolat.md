@@ -13,8 +13,6 @@ Petite description
 * 10 oeufs
 * 3.548 L sauce bolognaise
 * lait
-*chocolat
-*20 L eau
 
 ## [CUISSONS]
 
