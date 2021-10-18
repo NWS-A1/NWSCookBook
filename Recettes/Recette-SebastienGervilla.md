@@ -9,7 +9,7 @@
 #### [INGREDIENTS] :
 
 * 2 Oeufs
-* 57,666666667g de Farine
+* 57,66666666667g de Farine
 * 10 Tomates
 * ½ Citron
 * Un sac de ciment
