@@ -1,17 +1,26 @@
-# La Tarte aux poires 😋
+# SUPER RECETTE SURPRISE  😋
 
-## [AUTHOR] Sylvain Tenier
+## [AUTHOR] BARRANCO ENZO
 
-![This is a alt text.](https://static.750g.com/images/600-600/9823eb627203c878f3e36d72f8ce6d1c/tarte-aux-pommes.jpg "Miam 😋")
+![This is a alt text.](https://www.lafemmemoderne.fr/993772-6721/cadeau-surprise.jpg "Miam 😋")
 
 Petite description
 
 ## [INGREDIENTS]
 
-* Des poires
-* De la pâte
+* 200g de beurre 
+* 300g de farine 
+* 15 oeufs 
+* 2 verres de lait
+* un peu de dignité__
+* 10 carré de chocolat blanc
 
 ## [PREPARATION]
 
-1. Prendre les poires
-2. Préparer
+1. Prenez un saladier et versez les **2** verres de lait.
+1. Prenez un saladier et versez les **2** verres de lait.
+1. Prenez un grand saladier et battez les **15** œufs.
+1. Ajouter **200** grammes de beurre et **300** grammes de farine aux œufs.
+1. Faire fondre le chocolat blanc et le versez dans le saladier de lait.
+1. Fusionner les **2** saladier et mélanger le tout.
+1. Ajoutez un peu de dignité et mettez le tout au four.
