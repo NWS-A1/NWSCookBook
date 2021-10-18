@@ -11,7 +11,7 @@
 * 2 écorces de bois 
 * 200g de cheddar
 * 2kg gelée
-* 8,9kg de gelée
+* 8,9kg de cumin
 * 2 grains de sel, 4 grains de farine
 
 ## [Personne]
