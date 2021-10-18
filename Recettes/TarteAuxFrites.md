@@ -3,7 +3,7 @@
 
 ![Tarte aux frites](https://www.madmoizelle.com/wp-content/uploads/2015/05/tarte-aux-frites-recette.jpg "Une délicieuse tarte au frites 🤩")
 
-Miam miam ! Vous allez vous régalez !
+Miam miam !!! Vous allez vous régalez !
 
 ## [INGREDIENTS]
 
